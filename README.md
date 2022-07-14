@@ -6,11 +6,13 @@
 
 ### *Members*
 
-[Pre](https://lay.rip/k)
+[Pre](https://lay.rip/?user=k)
 
-[Mich](https://lay.rip/a)
+[Mich](https://lay.rip/?user=a)
 
-[Anix (IZ)](https://lay.rip/e)
+[Anix (IZ)](https://lay.rip/?user=e)
+
+[Stuck in another world](https://lay.rip)
 
 ### *Skills*
 
