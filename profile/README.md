@@ -6,9 +6,9 @@
 
 ### *Members*
 
-[Pre](https://lay.rip/k)
+[pre](https://lay.rip/k)
 
-[Mich](https://lay.rip/a)
+[michx](https://lay.rip/a)
 
 [Anix (IZ)](https://lay.rip/e)
 
