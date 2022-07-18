@@ -10,7 +10,11 @@
 
 [michx](https://lay.rip/a)
 
-[Anix (IZ)](https://lay.rip/e)
+[iz](https://lay.rip/j)
+
+[lay](https://lay.rip/dead)
+
+[doomz](https://lay.rip/doomz)
 
 ### *Skills*
 
